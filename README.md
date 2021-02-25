@@ -1,1 +1,0 @@
-# theorybegetter.github.io
